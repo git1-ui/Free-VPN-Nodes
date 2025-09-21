@@ -1,2 +1,4 @@
 # Free-VPN-Nodes
-#感谢您右上角的star🌟
+#制作不易
+# 感谢您右上角的star🌟
+谢谢！
